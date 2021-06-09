@@ -1,1 +1,1 @@
-# C22-Student-boiler-plate
+this be a GG not a EZ
